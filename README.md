@@ -10,4 +10,4 @@ Five fun facts about me:
 
 4 : My current favorite wine is Georis Sauvignon Blanc. It has hints of tropical fruit and guava with a slight mineral finish. 
 
-5 : My husband and I eloped in Tahiti. We had known eachother for nine months. When you know, you know.
+5 : My husband and I eloped in Tahiti. We had known each other for nine months. When you know, you know.
