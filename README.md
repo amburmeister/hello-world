@@ -2,7 +2,7 @@
 
 Five fun facts about me:
 
-1 : The first code I ever wrote was to remove borders around photos on a blogspot post. The photos were of chai spice summer squash muffins with white chocolate chips. They were delicious.
+1 : The first code I ever wrote was to remove borders on photos for a blogspot post. The photos were of chai spice summer squash muffins with white chocolate chips. They were delicious.
 
 2 : When I was in third grade I dressed up as Albert Einstein for holloween. People confused me for Mark Twain.
 
